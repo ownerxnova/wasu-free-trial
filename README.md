@@ -1,0 +1,2 @@
+# wasu-free-trial
+God 
